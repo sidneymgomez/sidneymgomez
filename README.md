@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sidneymgomez 
+- 📫 How to reach me sidney.mgomezrodriguez@intercom.io
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I'm fluent in Spanish, English and American Sign Language
